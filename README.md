@@ -6,6 +6,6 @@
 >or click under releases the tag and then when the page loads click realeases and under the assets you will see the file.
 >they are easy to download with the click of a button
 >Java Edition Version is also in Progress
-![YouTube Video Thumbnail](https://github.com/user-attachments/assets/66463350-936a-473e-98bf-ea261f7c2f31
-)[[https://github.com/user-attachments/assets/66463350-936a-473e-98bf-ea261f7c2f31](https://www.youtube.com/@Karteriscool635)
+)[![image](https://github.com/user-attachments/assets/d781d90c-f8be-439f-b389-06d138c156a9)
+](https://www.youtube.com/@Karteriscool635)
 
