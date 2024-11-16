@@ -10,3 +10,6 @@
 )
 ](https://www.youtube.com/@Karteriscool635)
 
+)[!![image](https://github.com/user-attachments/assets/bd1258b0-bcba-41c1-a3e9-c99ac9ee99fe)
+)
+](https://discord.com/invite/FPz3r6wrZJ)
